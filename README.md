@@ -1,6 +1,6 @@
 # hello-world
 something to do for fun
+Hi Human!!
 
-Hi Extraterrestrial 
-I'm an alian 
-i like to ride my spaceship and drink coffee. I also like to learn new things and act like human.
+I'm an extraterrestrial being. My name is E.T. (short for eli Tay money)
+I like to cruse around in my spaceship and learn new things 
